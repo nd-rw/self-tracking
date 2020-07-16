@@ -1,0 +1,6 @@
+- L-citrulline
+- Zinc
+- Magnesium
+- Vitamin B/12
+- Vitamin C
+- Vitamin D
